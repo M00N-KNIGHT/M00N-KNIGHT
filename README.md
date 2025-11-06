@@ -19,9 +19,9 @@
 
 <br />
 
-<p align="center"> ${\textsf{\color{#7D6670}Please call me}}$ ${\textsf{\color{#CCC9BD}Copi}}$ ${\textsf{\color{#7d6670}or}}$ ${\textsf{\color{#CCC9BD}Koi}}$ ${\textsf{\color{#7d6670} .}}$ ${\textsf{\color{#CCC9BD}15}}$ ${\textsf{\color{#7d6670}yo . Please read my}}$ ${\textsf{\color{#CCC9BD}Strawpage}}$ ${\textsf{\color{#7d6670}before}}$ ${\textsf{\color{#CCC9BD}interacting}}$
+<p align="center"> ${\textsf{\color{#7D6670}Please call me}}$ ${\textsf{\color{#CCC9BD}Copi}}$ ${\textsf{\color{#7d6670}or}}$ ${\textsf{\color{#CCC9BD}Koi}}$ ${\textsf{\color{#7d6670} .}}$ ${\textsf{\color{#CCC9BD}15}}$ ${\textsf{\color{#7d6670}yo}}$ ${\textsf{\color{#7d6670}.}}$ ${\textsf{\color{#7d6670} Please read my}}$  ${\textsf{\color{#CCC9BD}Strawpage}}$ ${\textsf{\color{#7d6670}before}}$ ${\textsf{\color{#CCC9BD}interacting}}$
 
-<p align="center"> ${\textsf{\color{#7d6670}Please}}$ ${\textsf{\color{#CCC9BD}w2i}}$ ${\textsf{\color{#7d6670} . }}$ ${\textsf{\color{#7d6670}And I don't bite !! Please}}$ ${\textsf{\color{#CCC9BD}bmf}}$ ${\textsf{\color{#7d6670}I'm pretty lonely please}}$ 
+<p align="center"> ${\textsf{\color{#7d6670}Please}}$ ${\textsf{\color{#CCC9BD}w2i}}$ ${\textsf{\color{#7d6670} . }}$ ${\textsf{\color{#7d6670}And I don't bite !! Please}}$ ${\textsf{\color{#CCC9BD}bmf}}$ ${\textsf{\color{#7d6670}I'm pretty lonely please}}$ ${\textsf{\color{#7d6670}.}}$ ${\textsf{\color{#CCC9BD}DNI}}$ ${\textsf{\color{#7d6670}if you're +19}}$
 
 <br />
 <br />
