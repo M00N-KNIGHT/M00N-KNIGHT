@@ -15,7 +15,7 @@
 <br />
 <br />
 <br />
-<p align="center"> ${\textsf{\color{#7d6670}HIII feel free to}}$ ${\textsf{\color{#CCC9BD}interact}}$ ${\textsf{\color{#7d6670}and}}$ ${\textsf{\color{#CCC9BD}c+h}}$
+<p align="center"> ${\textsf{\color{#7d6670}HIII feel free to}}$ ${\textsf{\color{#CCC9BD}interact}}$ ${\textsf{\color{#7d6670}and}}$ ${\textsf{\color{#CCC9BD}c+h}}$ ${\textsf{\color{#7d6670}.}}$ ${\textsf{\color{#CCC9BD}Esp}}$ ${\textsf{\color{#7d6670}/}}$ ${\textsf{\color{#CCC9BD}Eng}}$ ${\textsf{\color{#7d6670}speaker}}$
 
 <br />
 
