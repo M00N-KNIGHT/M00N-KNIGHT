@@ -30,4 +30,6 @@ ${\textsf{\color{#7d6670}ㅤㅤ୨ㅤㅤ}}$
 [Strawpage](https://copii.straw.page)
 ${\textsf{\color{#7d6670}ㅤㅤ.ㅤㅤ}}$
 [Pronouns](https://en.pronouns.page/@COPII)
+${\textsf{\color{#7d6670}ㅤㅤ.ㅤㅤ}}$
+[Gng strawpg](https://abusementpark.straw.page)
 ${\textsf{\color{#7d6670}ㅤㅤ୧ㅤㅤ}}$
